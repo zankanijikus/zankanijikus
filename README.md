@@ -2,7 +2,7 @@
 
 ⠀ ⠀ ⠀ O1 ⠀ ⠀  (::[✙]::)  ⠀ ། ⠀ Navigation⠀ :⠀⠀![](https://files.catbox.moe/f68cft.gif)
 
-⠀⠀ ⠀ [Rentry](https://rentry.co/Follogusts) [Atabook](https://zankaz.atabook.org/) [AlterSpring](https://alterspring.org/@zankaz) [Carrd](https://irlzanka.carrd.co/) [Spotify](https://open.spotify.com/user/316rk7t4b6k7pc2rhehu5ajjgbna?si=a876afdc1757429e)
+⠀⠀ ⠀ [Rentry](https://rentry.co/imzanka) [Atabook](https://zankaz.atabook.org/) [AlterSpring](https://alterspring.org/@zankaz) [Carrd](https://irlzanka.carrd.co/) [Spotify](https://open.spotify.com/user/316rk7t4b6k7pc2rhehu5ajjgbna?si=a876afdc1757429e)
 
 
 ︶† ݁ ⠀︶︶ ∔︶︶ ⠀ ݁ †︶︶ ⠀ ݁ †︶︶† ݁ ⠀︶︶ ∔︶︶ ⠀ ݁ †︶
